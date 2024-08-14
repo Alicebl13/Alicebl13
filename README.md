@@ -12,4 +12,4 @@ Nossos nomes são Alice e Sarah
 
  00001101404668sp@al.educacao.sp.gov.br
  
- ![](https://tenor.com/pt-BR/view/king-the-land-lee-jun-ho-lim-yoona-2pm-junho-snsd-yoona-gif-2442135954950686183)
+ ![](https://media1.tenor.com/m/IeQ1tkgLhecAAAAC/king-the-land-lee-jun-ho.gif)
